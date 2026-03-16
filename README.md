@@ -51,7 +51,7 @@ Read again.
 When the word reveals itself,
 carry it to the place where echoes gather.
 
-https://discord.com/channels/@echo_40423
+aHR0cHM6Ly9kaXNjb3JkLmNvbS9jaGFubmVscy9AZWNob180MDQyMw==
 
 The door does not open to noise.
 It opens only to the correct name.
